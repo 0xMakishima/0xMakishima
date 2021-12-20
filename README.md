@@ -1,0 +1,1 @@
+- I love this game that people call “life” from the bottom of my heart. That’s why I’d like to continue to participate in it as a player, forever and ever.
